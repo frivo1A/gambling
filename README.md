@@ -7,3 +7,6 @@
 ## motivo da criação
  
  foi criado com o objetivo de fazer as pessoas gastarem menos dinheiros com casino, ja que o premio pode ser mandar algum amigo fazer uma prenda ou coisa do tipo
+
+ #bom jogo e boa sorte
+ ![alt text](image.png)
